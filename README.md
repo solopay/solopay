@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @solopay
 - 👀 I’m interested in coding and making interesting things.
 - 🌱 I’m currently learning software languages.
-- 📫 You can reach me on discord (☨ Solopay#3724).
+- 📫 You can reach me on discord (Solopay ✰#3724).
 - 📫 You can reach me on YouTube (https://www.youtube.com/c/OkanalpOfficial).
 - 📫 You can reach me on Instagram (okanalp.ino).
 
