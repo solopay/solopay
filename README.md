@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning software languages.
 - 📫 You can reach me on discord (!Solo#9999).
 - 📫 You can reach me on YouTube (https://www.youtube.com/c/OkanalpOfficial).
-- 📫 You can reach me on Instagram (okanalp.ino).
+- 📫 You can reach me on Instagram (solopay.png).
 
 Hi, I'm Okanalp.
 I am 13 years old and I am interested in technology.
